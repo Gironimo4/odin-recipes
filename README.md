@@ -1,0 +1,1 @@
+Creating my first website after being away from the school environment and not just editing existing projects for work.
